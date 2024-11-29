@@ -1,1 +1,1 @@
-# didi-luxe-couture
+# Didi Luxe Couture
